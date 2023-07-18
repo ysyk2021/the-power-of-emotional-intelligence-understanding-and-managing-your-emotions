@@ -8,7 +8,6 @@ In this book, we will explore the definition of emotional intelligence, its key 
 
 Whether you are a business leader, educator, healthcare professional, or anyone looking to improve your interpersonal skills, "The Power of Emotional Intelligence" provides a practical roadmap for developing emotional intelligence and applying it in various contexts. By developing this critical skill, you can improve your decision-making, build stronger relationships, and achieve personal and professional success.
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
 
 
