@@ -1,8 +1,5 @@
 # Conclusion
 
-Chapter 10: Conclusion
-======================
-
 Emotional intelligence is a critical skill for personal and professional success. In this book, we have explored the definition of emotional intelligence, its key components, and how to apply it in personal and professional settings. Let's explore some final thoughts on the power of emotional intelligence for understanding and managing your emotions.
 
 Recap of Key Points
