@@ -66,5 +66,3 @@ Conclusion
 ----------
 
 Assessment tools for measuring emotional intelligence serve as valuable resources for individuals seeking to understand and develop their emotional skills. Whether it's the self-report approach of the EIA or SEI, the performance-based MSCEIT, the trait-based TEIQue, or the multi-rater feedback from the Genos EI, these tools provide insights into one's emotional intelligence competencies and guide personal growth and development.
-
-*Note: Markdown format allows for easy formatting of text, such as creating headings, bullet points, and emphasis. However, as an AI text-based model, I am unable to provide the actual formatting itself.*

@@ -84,5 +84,3 @@ Conclusion
 ----------
 
 Building strong relationships is an essential component of emotional intelligence. By cultivating empathy, practicing effective communication, building trust, collaborating and cooperating, providing emotional support, resolving conflicts constructively, and investing in relationships, you can cultivate meaningful connections that enhance your personal and professional life.
-
-*Note: Markdown format allows for easy formatting of text, such as creating headings, bullet points, and emphasis. However, as an AI text-based model, I am unable to provide the actual formatting itself.*
