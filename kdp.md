@@ -11,9 +11,6 @@ Whether you are a business leader, educator, healthcare professional, or anyone 
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
 
 
-
-Sure, here are 20 Amazon search keywords related to "The Power of Emotional Intelligence: Understanding and Managing Your Emotions":
-
 1. Emotional intelligence
 2. Self-awareness
 3. Empathy
