@@ -29,6 +29,5 @@
   - [Common Obstacles to Developing Emotional Intelligence](chapter-8-1.md)
   - [Strategies for Overcoming Challenges](chapter-8-2.md)
 - [Chapter 9: Case Studies of Successful Application of Emotional Intelligence](chapter-9.md)
-  - [Real-life Examples of Individuals who have Successfully Applied Emotional Intelligence in Personal and Professional Settings](chapter-9-1.md)
 - [Conclusion](conclusion.md)
 - [Contacts](contacts.md)
