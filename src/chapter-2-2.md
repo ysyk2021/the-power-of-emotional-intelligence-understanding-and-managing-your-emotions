@@ -1,5 +1,3 @@
-Key Components of Emotional Intelligence
-=================================================
 
 Emotional intelligence consists of several key components that contribute to understanding and managing one's emotions effectively. These components encompass self-awareness, self-regulation, motivation, empathy, and social skills.
 

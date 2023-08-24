@@ -1,5 +1,3 @@
-Recap of Key Points
-===========================================
 
 Emotional intelligence is a critical skill for personal and professional success. In this book, we have explored the definition of emotional intelligence, its key components, and how to apply it in personal and professional settings. Let's recap some of the key points from this book:
 

@@ -1,5 +1,3 @@
-Chapter 1: Introduction
-=======================
 
 Emotional intelligence is an important skill that allows us to understand and manage our emotions effectively. By developing our emotional intelligence, we can improve our relationships, achieve greater success in both personal and professional settings, and lead happier, more fulfilling lives. In this chapter, we will explore the importance of emotional intelligence and provide an overview of the book.
 

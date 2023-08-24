@@ -1,5 +1,3 @@
-Common Obstacles to Developing Emotional Intelligence
-==============================================================
 
 In the journey of developing emotional intelligence, there are common obstacles that can hinder our progress. These obstacles may arise from within ourselves or from external factors. In this chapter, we will explore some of these obstacles and discuss strategies for overcoming them.
 

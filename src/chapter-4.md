@@ -1,5 +1,3 @@
-Chapter 4: Regulating Your Emotions
-===================================
 
 Regulating our emotions is a critical component of emotional intelligence. By developing our self-management skills, we can effectively manage our emotional responses and respond in a way that is appropriate to the situation. In this chapter, we will explore how to regulate our emotions.
 

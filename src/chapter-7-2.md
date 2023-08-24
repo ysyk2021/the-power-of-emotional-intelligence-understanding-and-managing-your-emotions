@@ -1,5 +1,3 @@
-Qualitative and Quantitative Methods for Evaluation
-============================================================
 
 Evaluation is essential for understanding and developing emotional intelligence. By assessing emotional skills, we can identify strengths and areas for improvement. This chapter explores qualitative and quantitative methods for evaluating emotional intelligence.
 

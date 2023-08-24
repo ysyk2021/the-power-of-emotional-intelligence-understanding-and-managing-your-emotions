@@ -1,5 +1,3 @@
-Chapter 7: Measuring Your Emotional Intelligence
-================================================
 
 Measuring emotional intelligence is important for understanding your strengths and weaknesses and identifying areas for improvement. In this chapter, we will explore assessment tools for measuring emotional intelligence and the differences between qualitative and quantitative methods for evaluation.
 

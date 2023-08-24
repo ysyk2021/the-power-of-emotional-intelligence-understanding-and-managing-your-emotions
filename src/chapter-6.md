@@ -1,5 +1,3 @@
-Chapter 6: Applying Emotional Intelligence in Personal and Professional Settings
-================================================================================
 
 Emotional intelligence is not just an abstract concept. It is a skill that can be applied in many areas of life, including personal relationships and professional settings. In this chapter, we will explore how to apply emotional intelligence to enhance personal relationships, improve conflict resolution skills, and develop effective leadership abilities.
 

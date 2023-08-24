@@ -1,5 +1,3 @@
-Chapter 2: Understanding Emotional Intelligence
-===============================================
 
 Emotional intelligence is a vital part of our overall well-being. It refers to the ability to understand and manage our own emotions, as well as the emotions of others. In this chapter, we will explore the definition of emotional intelligence, its key components, and the benefits of developing emotional intelligence.
 

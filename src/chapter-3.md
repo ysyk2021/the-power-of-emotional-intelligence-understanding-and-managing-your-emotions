@@ -1,5 +1,3 @@
-Chapter 3: Recognizing Your Emotions
-====================================
 
 Recognizing and understanding our emotions is a critical component of emotional intelligence. By developing self-awareness and identifying our emotional triggers, we can better manage our emotions and respond to them in a way that is appropriate for the situation. In this chapter, we will explore how to recognize your emotions and develop greater self-awareness.
 

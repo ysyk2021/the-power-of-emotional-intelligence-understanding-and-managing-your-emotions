@@ -1,5 +1,3 @@
-Improving Conflict Resolution Skills
-=============================================
 
 Conflict is an inevitable part of human interaction, and developing strong conflict resolution skills is crucial for personal and professional success. In this chapter, we will explore the importance of emotional intelligence in conflict resolution and provide practical strategies to enhance your ability to navigate conflicts effectively.
 

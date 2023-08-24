@@ -1,5 +1,3 @@
-Communicating Effectively
-==================================
 
 Effective communication is a vital aspect of emotional intelligence. It involves the ability to express oneself clearly, listen actively, and adapt communication styles to different situations and individuals. Developing effective communication skills can greatly enhance relationships, resolve conflicts, and foster understanding. In this chapter, we will explore key strategies for communicating effectively.
 

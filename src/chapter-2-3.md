@@ -1,5 +1,3 @@
-Benefits of Emotional Intelligence
-===========================================
 
 In this chapter, we will explore the numerous benefits that arise from developing and harnessing emotional intelligence. Understanding and managing your emotions can have a transformative impact on various aspects of your life.
 

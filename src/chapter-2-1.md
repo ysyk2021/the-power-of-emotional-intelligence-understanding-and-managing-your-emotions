@@ -1,5 +1,3 @@
-Definition of Emotional Intelligence
-=============================================
 
 In this chapter, we will explore the concept of emotional intelligence and provide a comprehensive definition of this crucial aspect of human psychology.
 

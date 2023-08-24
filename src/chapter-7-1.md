@@ -1,5 +1,3 @@
-Assessment Tools for Measuring Emotional Intelligence
-==============================================================
 
 Assessing emotional intelligence is crucial for understanding and developing one's emotional skills. Various assessment tools are available to measure emotional intelligence accurately. In this chapter, we will explore some commonly used assessment tools and their key features.
 
