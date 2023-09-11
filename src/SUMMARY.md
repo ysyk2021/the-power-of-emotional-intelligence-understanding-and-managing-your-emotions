@@ -31,3 +31,4 @@
 - [Chapter 9: Case Studies of Successful Application of Emotional Intelligence](chapter-9.md)
 - [Conclusion](conclusion.md)
 - [Contacts](contacts.md)
+- [Our Other Books](other-books.md)
